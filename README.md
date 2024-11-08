@@ -2,7 +2,7 @@
 
 
 
-Target Achievement Year-to-date for 2024**
+Target Achievement Year-to-date for 2024*
 
 ![image](https://github.com/user-attachments/assets/cd6956d2-cfa7-47e7-9931-1a58d99e7e28)
 
