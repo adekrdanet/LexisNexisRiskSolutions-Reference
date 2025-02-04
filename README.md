@@ -2,9 +2,10 @@
 
 
 
-**Target Achievement Year-to-date for 2024**
+**Target Achievement for 2024**
 
-![image](https://github.com/user-attachments/assets/cd6956d2-cfa7-47e7-9931-1a58d99e7e28)
+![image](https://github.com/user-attachments/assets/e9b41376-6360-44b2-8266-4ed5aca93078)
+
 
 **Target Achievement for 2023**
 
