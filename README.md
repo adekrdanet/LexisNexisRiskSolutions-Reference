@@ -4,14 +4,17 @@
 
 **Target Achievement for 2024**
 
-![image](https://github.com/user-attachments/assets/e9b41376-6360-44b2-8266-4ed5aca93078)
+
+![image](https://github.com/user-attachments/assets/b64a52a5-9ac1-464d-b6bd-cf6eb7ac2cac)
 
 
 **Target Achievement for 2023**
 
-![image](https://github.com/user-attachments/assets/3a227b97-b5d2-40b4-a0ce-4db4e83a8081)
+![image](https://github.com/user-attachments/assets/7e30d654-c2cb-488a-b1d0-6b39c3e5924d)
+
 
 
 **Target Acheivement for 2022**
 
-![image](https://github.com/user-attachments/assets/ea75dca8-3e66-4f03-bec8-a253a2c2756d)
+![image](https://github.com/user-attachments/assets/8b8ed2fe-92d7-435c-9d72-487db3dcec42)
+
